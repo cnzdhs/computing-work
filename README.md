@@ -6,7 +6,7 @@ always gracious and inspirational
 
 They were sent to teach us and
 to help us to comprehend
-and will coninue till the end
+and will continue till the end
 
 Education the teachers start
 we learn the knowledge that they depart
