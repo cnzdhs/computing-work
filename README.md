@@ -1,6 +1,4 @@
 # *computing-work*
-*teachers day poem?*
-guys pls gime ideas to make this better.
 
 Teachers are hardworking and patient
 filed with determination amd dedication  
