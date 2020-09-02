@@ -1,16 +1,15 @@
 # *computing-work*
 
 Teachers are hardworking and patient
-filed with determination amd dedication  
+filled with determination and dedication  
 always gracious and inspirational
 
-They came to teach and was sent
-to help us comprehend
-till the dead end
+They were sent to teach us and
+to help us to comprehend
+and will coninue till the end
 
-The game of life 
-teachers get it start
-from the race to the depart
+Education the teachers start
+we learn the knowledge that they depart
 
 You moulded us with pride
 so we can decide
@@ -24,8 +23,8 @@ Though you may get heart attacks :)
 
 You may have thought you were merely teaching
 When you were helping to eliminate fear
-Never leaving the door ajar
-Into the biosphere
+soon from my life you shall disappear
+but i will never forget your teachings that I hold dear
 
 The letters on the piece of paper 
 Shows your dedication and motivation
