@@ -4,12 +4,12 @@ Teachers are hardworking and patient
 filled with determination and dedication  
 always gracious and inspirational
 
-They were sent to teach us 
-and to help us to comprehend
+They were tasked to teach us 
+and to help us comprehend
 and will continue till the end
 
 Education the teachers start
-Languages, Sciences, Humans and Art
+Languages, Sciences, Humanities and Art
 we learn the knowledge that they depart
 they will always stay in our heart 
 
@@ -20,14 +20,14 @@ and how to abide by law's side
 
 If we sidetrack
 You never slack
-only getting us back on the track
+only get us back on track
 Though you may get heart attacks :)
 
 You may have thought you were merely teaching
 When you were helping to eliminate fear
 soon from my life you shall disappear
-but i will never forget your teachings that I hold dear
+but alas, we will never forget your teachings that I hold dear
 
-The letters on the piece of paper 
+The letters on this piece of paper 
 Shows your dedication and motivation
-For us, Dunmanians
+For us and us only, Dunmanians
