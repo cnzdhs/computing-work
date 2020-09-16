@@ -30,4 +30,7 @@ but alas, we will never forget your teachings that I hold dear
 
 The letters on this piece of paper 
 Shows your dedication and motivation
-For us and us only, Dunmanians
+For us and us only, Dunmanian!
+
+Kind, compassionate, caring and helpful
+but sometimes gives us an earful
