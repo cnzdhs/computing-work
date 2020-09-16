@@ -2,21 +2,20 @@
 
 Teachers are hardworking and patient
 filled with determination and dedication  
-always gracious and inspirational
+always gracious, inspirational and caring
 
-They were sent to teach us 
-and to help us to comprehend
+You were sent to teach us and
+to help us to comprehend
 and will continue till the end
 
 Education the teachers start
-Languages, Sciences, Humans and Art
-we learn the knowledge that they depart
-they will always stay in our heart 
+we absorb the knowledge that they provide
+better versions of ourselves we become
 
-You moulded each of us with pride
-so all of us can decide
-how to live our life
-and how to abide by law's side
+You developed us with pride
+so we can decide
+how to live life
+and to abide by law's side
 
 If we sidetrack
 You never slack
@@ -31,3 +30,4 @@ but i will never forget your teachings that I hold dear
 The letters on the piece of paper 
 Shows your dedication and motivation
 For us, Dunmanians
+And this we shall never forget
